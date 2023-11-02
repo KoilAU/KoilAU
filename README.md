@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+- I AM NOT KOIL WHO OWNS NOPIXEL, STOP CONFUSING ME FOR HIM.
+
 <!--
 **KoilAU/KoilAU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
